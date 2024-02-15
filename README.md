@@ -1,5 +1,5 @@
 # HUGH GLENN
-<ins>**Resouces**<ins>
+<ins>**RESOURCES**<ins>
 
 -Saksham
 
